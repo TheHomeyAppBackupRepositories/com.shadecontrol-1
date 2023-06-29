@@ -1,0 +1,2 @@
+Met Shade Control maak je je bestaande rol- of vouwgordijnen slim binnen 5 minuten. Het werkt op ieder type rol- of vouwgordijn. Zelfs op verticale lamellen, zolang het een kralenketting heeft.
+Monteer Shade Contol eenvoudig aan je kralenketting en laat Shade Control de kralenketting bedienen.
